@@ -6,7 +6,7 @@ However, even though there won't be one 3-day face-to-face event this year we ha
 If you want to **stay up-to-date** with upcoming virtual training you can either join our **[mailing list](https://forms.gle/2eXLRw4qnHQkXjB49)** or follow us on **[Twitter](https://twitter.com/ResBazPerth)**. </br>
 We will also endeavour to link to upcoming training from this webpage, please check the [Schedule](https://curtinic.github.io/resbaz2020/perth/#schedule).
 
-In the meantime we are working on bringing you a great virtual ResBaz throughout the week of June 28 2021. Stay tuned for updates!
+In the meantime we are working on bringing you a great virtual ResBaz throughout the week of June 28 2021: [ResBaz 2021 WebSite is now live!] (https://curtinic.github.io/ResBazPerth2021/)
 
 # About
 
